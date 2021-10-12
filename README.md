@@ -4,11 +4,13 @@
 
 -I’m currently learning protocols for constraints.
 
--I’m looking to collaborate on anything that can help educate all those collaborating togethe in our areas of interest. 
+-I’m looking to collaborate on anything, and anything that can help educate all those collaborating, together, in our areas of interest. 
 
 -How to reach me probably via email -- hiddenunder00@gmail.com or reach out via github/reddit for the fastest response. 
 
 -I'm self taught and still learning, obviously. 30 years old and a mom. Quick and efficient is key!
+
+-Collab with me on discord - ask for the server ID
 
 
 <!---
